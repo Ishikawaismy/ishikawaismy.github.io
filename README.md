@@ -1,0 +1,1 @@
+# ishikawaismy.github.io
